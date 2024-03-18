@@ -1,1 +1,1 @@
- https://gq91.github.io/netflix/g
+ https://gq91.github.io/netflix/
